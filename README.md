@@ -1,4 +1,4 @@
-### Hi there 👋
+### 我的人生可以有把玩单调的时间，但没有忍受厌倦的余地。  ------村上春树 👋
 
 <!--
 **LOMOGO/lomogo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
